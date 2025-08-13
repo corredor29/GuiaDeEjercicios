@@ -29,3 +29,45 @@ Es una disciplina exigente que desarrolla tanto capacidades físicas como mental
 ⚪ Aumenta la confianza y la disciplina – Superar entrenamientos duros fortalece la mentalidad.
 
 ⚪ Desarrolla resistencia mental – Ayuda a mantener el control bajo presión física y emocional.
+
+## Instrucciones 🔱
+
+🔶 Usa el equipo adecuado
+
+🔹 Guantes de boxeo, vendas para proteger las muñecas, bucal y, si es posible, casco protector.
+
+🔶 Calienta antes de comenzar
+
+🔹 Incluye movilidad articular, salto de cuerda y ejercicios de activación muscular por 5–10 minutos.
+
+🔶 Adopta la postura correcta
+
+🔹 Pies separados al ancho de hombros, rodillas ligeramente flexionadas, manos arriba protegiendo el rostro y barbilla hacia abajo.
+
+🔶 Aprende los golpes básicos
+
+🔹 Jab, cross, hook y uppercut, siempre acompañados de rotación de cadera y movimiento de pies.
+
+🔶 Trabaja la guardia y la defensa
+
+🔹 Practica bloqueos, esquivas y pasos laterales para evitar golpes.
+
+🔶 Coordina respiración y golpeo
+
+🔹 Exhala en cada golpe para mantener fuerza y resistencia.
+
+🔶 Comienza con ejercicios controlados
+
+🔹 Golpea el saco con combinaciones simples antes de pasar a sparring.
+
+🔶 Entrena la técnica antes que la fuerza
+
+🔹 Golpear correctamente evita lesiones y mejora el rendimiento.
+
+🔶 Incluye ejercicios físicos complementarios
+
+🔹 Salto de cuerda, abdominales, flexiones y trabajo de piernas.
+
+🔶 Enfría y estira al terminar
+
+🔹 Estiramientos para hombros, brazos, espalda y piernas para prevenir lesiones.
