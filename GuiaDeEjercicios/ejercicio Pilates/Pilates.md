@@ -71,3 +71,25 @@ Puede practicarse en el suelo (Pilates Mat) o con máquinas especiales como el R
 🔶 Finaliza con estiramientos y relajación
 
 🔹Esto ayuda a reducir tensión muscular y a integrar los beneficios del entrenamiento.
+
+## Consejos 🔰
+
+🟦 Prioriza la técnica antes que la intensidad – Un movimiento mal hecho anula los beneficios y aumenta el riesgo de lesión.
+
+🟦 Activa el core todo el tiempo – Mantén el abdomen firme y la zona lumbar estable en cada ejercicio.
+
+🟦 Coordina respiración y movimiento – La respiración es clave para el control y la eficacia.
+
+🟦 Muévete lento y con control – La calidad del movimiento es más importante que la cantidad de repeticiones.
+
+🟦 Mantén una postura alineada – Cabeza, cuello, hombros, columna y cadera deben trabajar en equilibrio.
+
+🟦 Usa accesorios según tu nivel – Pelotas, bandas o el Reformer pueden facilitar o aumentar el reto.
+
+🟦 No fuerces la flexibilidad – Gana rango de movimiento de forma gradual para evitar lesiones.
+
+🟦 Sé constante – Practicar 2–3 veces por semana da mejores resultados que sesiones esporádicas.
+
+🟦 Escucha a tu cuerpo – Ajusta ejercicios si sientes dolor o incomodidad excesiva.
+
+🟦 Hidrátate y descansa – El cuerpo necesita recuperación para adaptarse y progresar.
