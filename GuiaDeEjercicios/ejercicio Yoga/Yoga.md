@@ -29,3 +29,45 @@ Se puede practicar en cualquier lugar, con o sin implementos, y es adaptable a t
 🟪 Favorece la salud articular – Moviliza y lubrica las articulaciones, reduciendo rigidez.
 
 🟪 Promueve el bienestar emocional – Incrementa la sensación de calma, paz y conexión interior.
+
+## Instrucciones 🔱
+
+🔷 Elige un espacio tranquilo
+
+🔸	Busca un lugar sin distracciones, con suficiente espacio y ventilación.
+
+🔷 Usa ropa cómoda y una esterilla
+
+🔸	La ropa debe permitir libertad de movimiento y la esterilla evitar deslizamientos.
+
+🔷 Comienza con un calentamiento suave
+
+🔸	Realiza estiramientos y movimientos articulares para preparar el cuerpo.
+
+🔷 Sigue una secuencia equilibrada
+
+🔸	Alterna posturas de pie, de equilibrio, sentadas, torsiones y relajación final.
+
+🔷 Mantén la respiración consciente (Pranayama)
+
+🔸	Respira por la nariz, de manera profunda y controlada durante todo el ejercicio.
+
+🔷 Ajusta la postura a tu nivel
+
+🔸	Usa bloques, correas o mantas si es necesario para mantener la alineación.
+
+🔷 No fuerces tu cuerpo
+
+🔸	Avanza gradualmente y respeta tus límites para evitar lesiones.
+
+🔷 Mantén cada postura entre 15 y 60 segundos
+
+🔸	El tiempo dependerá del estilo de yoga y tu experiencia.
+
+🔷 Termina con relajación o meditación (Savasana)
+
+🔸	Dedica al menos 5 minutos para integrar los beneficios de la práctica.
+
+🔷 Sé constante
+
+🔸	Practica al menos 2–3 veces por semana para notar cambios físicos y mentales.
