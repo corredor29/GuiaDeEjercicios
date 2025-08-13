@@ -29,3 +29,25 @@ Además de sus beneficios físicos, la natación también favorece la relajació
 🟪 Favorece la rehabilitación física – El agua disminuye la carga sobre las articulaciones y músculos.
 
 🟪 Es apta para todas las edades – Desde bebés hasta adultos mayores pueden practicarla.
+
+## Instrucciones 🔱
+
+🟦 Mejora la salud cardiovascular
+
+🟦 Fortalece todo el cuerpo de forma equilibrada
+
+🟦 Protege las articulaciones (bajo impacto)
+
+🟦 Aumenta la capacidad pulmonar y el control de la respiración
+
+🟦 Favorece la flexibilidad y movilidad articular
+
+🟦 Ayuda a quemar calorías y controlar el peso
+
+🟦 Reduce el estrés y promueve el bienestar mental
+
+🟦 Desarrolla coordinación, equilibrio y habilidades motoras
+
+🟦 Apoya la rehabilitación física y recuperación de lesiones
+
+🟦 Es apta para todas las edades y niveles
