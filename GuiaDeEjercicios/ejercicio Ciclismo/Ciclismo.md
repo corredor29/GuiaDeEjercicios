@@ -72,3 +72,24 @@ Existen diferentes modalidades, como ciclismo de carretera, ciclismo de montaña
 
 🔸 Aumenta el tiempo y el esfuerzo poco a poco para evitar sobrecargas
 
+## Consejos 🔰
+
+💠 Invierte en un buen casco – Es tu principal protección ante caídas.
+
+💠 Mantén tu bicicleta limpia y bien lubricada – Esto prolonga su vida útil y mejora el rendimiento.
+
+💠 Ajusta el sillín correctamente – Una altura incorrecta puede causar molestias en rodillas o espalda.
+
+💠 Usa ropa adecuada – Culottes con badana para evitar rozaduras y camisetas transpirables.
+
+💠 Come antes y durante rutas largas – Lleva snacks energéticos o geles para mantener el rendimiento.
+
+💠 Planifica tu ruta – Conoce el terreno, distancia y posibles puntos de descanso.
+
+💠 No te excedas en las subidas – Mantén un ritmo que te permita respirar cómodamente.
+
+💠 Aprende a usar los cambios – Cambia a piñones bajos antes de las subidas para ahorrar energía.
+
+💠 Rodéate de otros ciclistas – Ir en grupo puede motivarte y mejorar tu técnica.
+
+💠 Sé visible siempre – Usa luces delanteras y traseras, incluso de día, para aumentar tu seguridad.
