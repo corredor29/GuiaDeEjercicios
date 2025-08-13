@@ -72,3 +72,25 @@ Pide supervisión si levantas peso muy alto.
 
 Escucha a tu cuerpo y evita forzar más allá del dolor normal del esfuerzo.
 
+## Consejos 🛡
+
+🔴 Empieza con el peso adecuado → que te permita hacer el ejercicio con buena técnica y completar las repeticiones sin dolor.
+
+🔴 Prioriza la técnica antes que el peso → una mala postura aumenta el riesgo de lesiones.
+
+🔴 Calienta siempre antes → prepara músculos y articulaciones para el esfuerzo.
+
+🔴 Trabaja todos los grupos musculares → no te enfoques solo en una zona; busca equilibrio.
+
+🔴 Descansa entre series → de 30 seg a 2 min, según el objetivo y la intensidad.
+
+🔴 Respira correctamente → exhala al empujar o levantar, inhala al bajar o regresar.
+
+🔴 Aumenta la carga gradualmente → sube peso o repeticiones poco a poco para progresar sin lesionarte.
+
+🔴 Incluye días de descanso → los músculos crecen y se recuperan cuando no entrenas.
+
+🔴 Hidrátate y aliméntate bien → la proteína y una dieta equilibrada ayudan a reparar y construir músculo.
+
+🔴 Registra tu progreso → anotar peso, repeticiones y sensaciones te ayudará a mejorar.
+
