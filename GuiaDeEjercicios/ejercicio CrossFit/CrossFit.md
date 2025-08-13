@@ -29,3 +29,45 @@ El CrossFit puede adaptarse a todos los niveles de condición física, ya que lo
 🟡 Mejora la postura y la funcionalidad diaria – Movimientos que simulan actividades reales.
 
 🟡 Se adapta a todos los niveles – Los ejercicios pueden escalarse según la condición física.
+
+## Instrucciones 🔱
+
+🔶 Realiza un calentamiento completo
+
+🔺 Incluye movilidad articular, estiramientos dinámicos y activación muscular (5–10 minutos).
+
+🔶 Aprende la técnica antes de subir la intensidad
+
+🔺 Practica los movimientos sin peso o con cargas ligeras hasta dominarlos.
+
+🔶 Usa el equipo adecuado
+
+🔺 Ropa deportiva transpirable, zapatillas estables, cinturón de levantamiento y muñequeras si es necesario.
+
+🔶 Adopta una postura correcta
+
+🔺 Espalda recta, abdomen firme y control en cada repetición para prevenir lesiones.
+
+🔶 Sigue la estructura del WOD (Workout of the Day)
+
+🔺Calentamiento → Técnica → Circuito principal → Enfriamiento.
+
+🔶 Gestiona el peso y el ritmo
+
+🔺 Empieza con cargas y tiempos que puedas manejar sin perder la forma.
+
+🔶 Alterna ejercicios
+
+🔺 Combina levantamientos, movimientos gimnásticos y trabajo cardiovascular.
+
+🔶 Respira de forma controlada
+
+🔺 Exhala en la fase de esfuerzo e inhala en la de recuperación.
+
+🔶 Respeta los descansos
+
+🔺 Breves pero suficientes para mantener la calidad del entrenamiento.
+
+🔶 Enfría y estira al finalizar
+
+🔺 Favorece la recuperación y reduce el riesgo de lesiones.
