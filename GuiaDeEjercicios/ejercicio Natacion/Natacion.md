@@ -51,3 +51,25 @@ Además de sus beneficios físicos, la natación también favorece la relajació
 🟦 Apoya la rehabilitación física y recuperación de lesiones
 
 🟦 Es apta para todas las edades y niveles
+
+## Consejos 🔰
+
+🔵 Aprende la técnica correcta – Una buena postura y movimiento eficiente reducen el cansancio.
+
+🔵 Calienta antes de entrar al agua – Moviliza hombros, cuello y caderas para prevenir lesiones.
+
+🔵 Controla la respiración – Exhala bajo el agua e inhala fuera para mantener el ritmo.
+
+🔵 Usa gafas de natación – Mejoran la visibilidad y protegen los ojos del cloro o la sal.
+
+🔵 Nada con regularidad – 2–3 veces por semana para ver mejoras notables.
+
+🔵 Varía los estilos – Alternar crol, braza, espalda y mariposa desarrolla todo el cuerpo.
+
+🔵 Entrena la resistencia poco a poco – Aumenta distancias y tiempos progresivamente.
+
+🔵 Hidrátate también en el agua – Aunque no sientas sed, sigues perdiendo líquidos.
+
+🔵 Escucha a tu cuerpo – Si sientes dolor en hombros o cuello, revisa tu técnica.
+
+🔵 Relájate y flota cuando te canses – Mantener la calma es clave para conservar energía.
