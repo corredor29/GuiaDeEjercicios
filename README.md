@@ -26,4 +26,6 @@ abre visual studio code
 
 Clona el repositorio copiando y pegando el sigiente link:
 
-git clone https://github.com/wen-27/proyecto-python.git
+git clone https://github.com/corredor29/GuiaDeEjercicios.git
+
+espero que puedas disfrutar del repositorio
