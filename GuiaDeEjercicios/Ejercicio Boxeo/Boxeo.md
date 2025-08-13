@@ -71,3 +71,25 @@ Es una disciplina exigente que desarrolla tanto capacidades físicas como mental
 🔶 Enfría y estira al terminar
 
 🔹 Estiramientos para hombros, brazos, espalda y piernas para prevenir lesiones.
+
+## Consejos 🔰
+
+🟪 Enfócate en la técnica antes que en la fuerza – Un golpe bien ejecutado es más efectivo que uno fuerte pero mal dirigido.
+
+🟪 Protege siempre tu guardia – Manos arriba y barbilla baja, incluso cuando atacas.
+
+🟪 No olvides entrenar el juego de pies – La movilidad es clave para atacar y defenderte.
+
+🟪 Respira de forma controlada – Exhala en cada golpe para mantener potencia y evitar fatiga rápida.
+
+🟪 Ajusta bien las vendas y guantes – Una mala sujeción puede provocar lesiones en muñecas o nudillos.
+
+🟪 Trabaja la resistencia – El boxeo es tan mental como físico, así que entrena cardio y fuerza.
+
+🟪 Incluye ejercicios de core – Un abdomen fuerte mejora la estabilidad y la potencia de los golpes.
+
+🟪 Escucha a tu entrenador – Las correcciones técnicas evitan malos hábitos.
+
+🟪 No te sobrecargues – Descansa lo suficiente para permitir la recuperación muscular.
+
+🟪 Mantén una mentalidad paciente – La mejora en boxeo es progresiva y requiere constancia.
