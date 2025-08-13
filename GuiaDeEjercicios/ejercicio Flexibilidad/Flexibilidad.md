@@ -50,3 +50,25 @@ Realiza 5–10 minutos de actividad ligera (caminar, trotar suave, movilidad art
 🟦 Sé constante
 
 💠	Practica estiramientos al menos 3–4 veces por semana para mejorar y mantener la flexibilidad.
+
+## Consejos 🏓
+
+🟡	Sé constante, no intenso – Mejor estirar un poco todos los días que hacer sesiones largas de vez en cuando.
+
+🟡	Escucha a tu cuerpo – La sensación debe ser de tensión controlada, nunca de dolor agudo.
+
+🟡	Aprovecha el calor – Los músculos se estiran mejor después de calentar o de hacer ejercicio.
+
+🟡	Incluye movilidad articular – Antes de estirar, mueve las articulaciones con círculos y balanceos suaves.
+
+🟡	Mantén buena postura – Al estirar, cuida la alineación de espalda, cuello y cadera para evitar sobrecargas.
+
+🟡	Usa apoyo si lo necesitas – Bloques de yoga, bandas elásticas o una pared pueden ayudarte a llegar más lejos sin forzar.
+
+🟡	Combina con fuerza – Fortalecer músculos ayuda a que los estiramientos sean más efectivos y seguros.
+
+🟡	Hidrátate bien – La deshidratación reduce la elasticidad de músculos y tendones.
+
+🟡	Varía los ejercicios – Trabaja diferentes planos de movimiento para una flexibilidad más completa.
+
+🟡	Ten paciencia – La flexibilidad mejora con el tiempo; no intentes resultados en una sola sesión.
