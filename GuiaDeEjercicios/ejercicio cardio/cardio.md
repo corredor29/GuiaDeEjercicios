@@ -60,3 +60,25 @@ Estira los músculos que trabajaste para evitar rigidez.
 Bebe agua antes, durante y después del ejercicio.
 
 Escucha tu cuerpo: si sientes mareo, dolor o falta de aire, detente.
+
+## Consejos 🔰
+
+🔶 Empieza de forma gradual → no intentes hacer mucho el primer día; aumenta tiempo e intensidad poco a poco.
+
+🔶 Varía los ejercicios → alterna correr, bicicleta, natación, baile, etc., para evitar aburrirte y trabajar diferentes músculos.
+
+🔶 Usa calzado adecuado → reduce el impacto en articulaciones y previene lesiones.
+
+🔶 Controla la intensidad → utiliza la prueba de la conversación o un pulsómetro para no sobrepasarte.
+
+🔶 Escucha música motivante → ayuda a mantener el ritmo y disfrutar más el entrenamiento.
+
+🔶 Hidrátate bien → bebe agua antes, durante (si es más de 30 min) y después.
+
+🔶 Hazlo en horarios frescos → evita el calor extremo para prevenir golpes de calor.
+
+🔶 Combina con fuerza → incluir ejercicios de fuerza mejora el rendimiento cardiovascular y protege músculos y huesos.
+
+🔶 Escucha a tu cuerpo → si sientes mareos, dolor fuerte o fatiga excesiva, reduce la intensidad o descansa.
+
+🔶 Sé constante → es mejor hacer sesiones cortas pero regulares que entrenar mucho solo de vez en cuando.
