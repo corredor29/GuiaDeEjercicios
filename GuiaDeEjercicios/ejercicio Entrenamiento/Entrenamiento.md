@@ -73,3 +73,25 @@ Un entrenamiento efectivo incluye calentamiento, ejercicios principales y enfria
 🟨	Escucha a tu cuerpo
 
 🔺Detente si sientes dolor agudo o mareo; ajusta la carga o el descanso si es necesario.
+
+## Consejos
+
+🔻Sé constante – Es mejor entrenar un poco todos los días o varias veces por semana que hacer sesiones largas esporádicamente.
+
+🔻Establece metas claras – Define objetivos medibles y alcanzables para mantener la motivación.
+
+🔻Prioriza la técnica – Una ejecución correcta previene lesiones y mejora la efectividad.
+
+🔻Aumenta la intensidad de forma progresiva – Sube peso, repeticiones o velocidad poco a poco.
+
+🔻Descansa lo suficiente – El músculo crece y se recupera fuera del entrenamiento, no durante.
+
+🔻Escucha a tu cuerpo – Si sientes dolor agudo o mareo, detente y revisa tu forma de entrenar.
+
+🔻Varía la rutina – Cambia ejercicios, repeticiones o intensidad para evitar estancamiento y aburrimiento.
+
+🔻Combina fuerza y cardio – Para un desarrollo físico más completo y equilibrado.
+
+🔻Hidrátate y aliméntate bien – Sin nutrición adecuada, el rendimiento y la recuperación se ven afectados.
+
+🔻Registra tu progreso – Llevar un diario de entrenamientos ayuda a ver avances y detectar áreas de mejora.
