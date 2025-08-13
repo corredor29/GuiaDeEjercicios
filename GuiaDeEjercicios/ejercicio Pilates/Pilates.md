@@ -29,3 +29,45 @@ Puede practicarse en el suelo (Pilates Mat) o con máquinas especiales como el R
 ⚪ Beneficia la circulación – Moviliza y activa el flujo sanguíneo.
 
 ⚪ Es apto para todas las edades – Puede adaptarse a principiantes, embarazadas o personas en rehabilitación.
+
+## Instrucciones 🔱
+
+🔶 Elige un espacio cómodo y tranquilo
+
+🔹Usa una esterilla antideslizante y asegúrate de tener suficiente espacio para moverte.
+
+🔶 Usa ropa ajustada pero elástica
+
+🔹Esto facilita el movimiento y permite observar la alineación del cuerpo.
+
+🔶 Calienta antes de comenzar
+
+🔹Dedica 5–10 minutos a movilidad articular y estiramientos suaves.
+
+🔶 Concéntrate en el core
+
+🔹Mantén el abdomen firme y la pelvis estable durante todo el ejercicio.
+
+🔶 Respira de forma controlada
+
+🔹Inhala por la nariz y exhala por la boca, coordinando respiración con movimiento.
+
+🔶 Realiza movimientos lentos y precisos
+
+🔹El Pilates busca control, no velocidad; evita impulsos bruscos.
+
+🔶 Alinea la postura
+
+🔹Mantén hombros relajados, espalda neutra y cuello alineado con la columna.
+
+🔶 Usa accesorios si es necesario
+
+🔹Pelotas pequeñas, bandas elásticas o el Reformer pueden ayudar o intensificar el trabajo.
+
+🔶 Descansa entre ejercicios si lo requieres
+
+🔹Especialmente si eres principiante o sientes fatiga muscular.
+
+🔶 Finaliza con estiramientos y relajación
+
+🔹Esto ayuda a reducir tensión muscular y a integrar los beneficios del entrenamiento.
