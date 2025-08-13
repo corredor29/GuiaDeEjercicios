@@ -29,3 +29,46 @@ Existen diferentes modalidades, como ciclismo de carretera, ciclismo de montaña
 🔴 Aumenta la capacidad pulmonar – Favorece una respiración más profunda y eficiente.
 
 🔴 Es adaptable a cualquier nivel – Puede practicarse a intensidad baja, media o alta, según objetivos.
+
+## Instrucciones 🔱
+
+🔷 Elige la bicicleta adecuada
+
+🔸 Asegúrate de que el tamaño del cuadro y la altura del sillín se ajusten a tu estatura.
+
+🔷 Usa equipo de seguridad
+
+🔸 Casco homologado, guantes, gafas y, si es posible, ropa reflectante.
+
+🔷 Verifica la bicicleta antes de salir
+
+🔸 Revisa frenos, presión de llantas, cadena y cambios.
+
+🔷 Ajusta la postura correcta
+
+🔸 Espalda recta, codos ligeramente flexionados y peso distribuido entre sillín y manillar.
+
+🔷 Calienta antes de iniciar el recorrido
+
+🔸 Pedalea suavemente durante 5–10 minutos para activar músculos y articulaciones.
+
+🔷 Mantén una cadencia constante
+
+🔸 Idealmente entre 70 y 90 pedaladas por minuto para eficiencia y menor fatiga.
+
+🔷 Hidrátate durante la ruta
+
+🔸 Bebe agua o bebidas isotónicas cada 15–20 minutos.
+
+🔷 Respeta las normas de tránsito
+
+🔸 Señaliza tus giros y mantente en el carril designado para ciclistas.
+
+🔷 Enfría y estira al terminar
+
+🔸 Pedalea suave por 5 minutos y realiza estiramientos para piernas y espalda.
+
+🔷Sé progresivo con la distancia e intensidad
+
+🔸 Aumenta el tiempo y el esfuerzo poco a poco para evitar sobrecargas
+
