@@ -71,3 +71,25 @@ El CrossFit puede adaptarse a todos los niveles de condición física, ya que lo
 🔶 Enfría y estira al finalizar
 
 🔺 Favorece la recuperación y reduce el riesgo de lesiones.
+
+## Consejos 🔰
+
+💠 Prioriza la técnica sobre el peso – Un movimiento bien hecho previene lesiones y mejora el rendimiento.
+
+💠 Escala los ejercicios – Adapta cargas, repeticiones y tiempos a tu nivel de condición física.
+
+💠 Hidrátate antes, durante y después – El alto desgaste físico requiere buena reposición de líquidos.
+
+💠 Escucha a tu cuerpo – El dolor intenso o molestias articulares no deben ignorarse.
+
+💠 Varía la intensidad – Alterna WODs muy exigentes con sesiones más ligeras para permitir recuperación.
+
+💠 Cuida tu alimentación – Una dieta equilibrada potenciará fuerza, resistencia y recuperación.
+
+💠 Registra tu progreso – Anota pesos, tiempos y repeticiones para medir mejoras.
+
+💠 Invierte en buena técnica de levantamientos olímpicos – Son la base de muchos WODs.
+
+💠 No descuides la movilidad y estiramientos – Mejoran rango de movimiento y reducen riesgo de lesiones.
+
+💠 Disfruta el trabajo en comunidad – El apoyo del grupo ayuda a mantener constancia y motivación.
