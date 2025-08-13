@@ -30,3 +30,44 @@ Es ideal tanto para deportistas como para personas que buscan mejorar su rendimi
 
 🔘 Hace el entrenamiento más dinámico y divertido – Ofrece variedad y evita la monotonía.
 
+## Instrucciones
+
+🔷	Calienta antes de empezar
+
+🔸Dedica 5–10 minutos a movilidad articular y ejercicios dinámicos (saltos suaves, caminata rápida, círculos de hombros y cadera).
+
+🔷	Elige ejercicios multiarticulares
+
+🔸Incluye movimientos como sentadillas, zancadas, peso muerto, press, planchas, giros de tronco o levantamientos.
+
+🔷	Trabaja en patrones de movimiento
+
+🔸Organiza la rutina para cubrir empujar, jalar, agacharse, girar, levantar y desplazarse.
+
+🔷	Mantén la técnica correcta
+
+🔸Prioriza la alineación de espalda, control del core y uso de la respiración (exhala al esfuerzo, inhala al regresar).
+
+🔷	Ajusta la intensidad a tu nivel
+
+🔸Comienza con peso corporal y, cuando domines la técnica, añade resistencia (mancuernas, bandas, kettlebells).
+
+🔷	Realiza movimientos controlados
+
+🔸Evita impulsos bruscos o cargas excesivas que comprometan la postura.
+
+🔷	Alterna fuerza y cardio funcional
+
+🔸Combina ejercicios que eleven pulsaciones (burpees, mountain climbers) con fuerza (peso muerto, sentadillas).
+
+🔷	Descansa lo necesario
+
+🔸Entre 30 y 60 segundos según el objetivo (menos descanso para resistencia, más para fuerza).
+
+🔷	Estira al finalizar
+
+🔸Haz estiramientos estáticos para relajar músculos y mejorar la recuperación.
+
+🔷	Sé constante
+
+🔸Entrena de 2 a 4 veces por semana para ver mejoras progresivas.
