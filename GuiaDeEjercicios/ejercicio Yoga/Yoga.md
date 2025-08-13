@@ -71,3 +71,25 @@ Se puede practicar en cualquier lugar, con o sin implementos, y es adaptable a t
 🔷 Sé constante
 
 🔸	Practica al menos 2–3 veces por semana para notar cambios físicos y mentales.
+
+## Consejos 🔰
+
+🟦 Escucha a tu cuerpo – Evita forzar posturas; el progreso es gradual.
+
+🟦 Sé constante – Practicar 2–3 veces por semana es mejor que sesiones muy largas ocasionales.
+
+🟦 Concéntrate en la respiración – Mantener un flujo respiratorio constante ayuda a relajar y sostener las posturas.
+
+🟦 Calienta antes de posturas intensas – Prepara articulaciones y músculos para evitar lesiones.
+
+🟦 Usa accesorios cuando los necesites – Bloques, correas y mantas ayudan a mantener la alineación sin forzar.
+
+🟦 Mantén una mente abierta – No compares tu progreso con el de otros; cada cuerpo es único.
+
+🟦 Combina estilos – Alterna yoga suave (Yin, Hatha) con dinámico (Vinyasa, Ashtanga) para equilibrio físico y mental.
+
+🟦 Hidrátate antes y después – Evita beber demasiado durante la sesión para no cortar el ritmo.
+
+🟦 Practica en un espacio silencioso – El ambiente influye en la concentración y relajación.
+
+🟦 Finaliza siempre con relajación (Savasana) – Ayuda a asimilar los beneficios y cerrar la práctica con calma.
