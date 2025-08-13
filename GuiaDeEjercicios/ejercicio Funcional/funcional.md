@@ -71,3 +71,25 @@ Es ideal tanto para deportistas como para personas que buscan mejorar su rendimi
 🔷	Sé constante
 
 🔸Entrena de 2 a 4 veces por semana para ver mejoras progresivas.
+
+## Consejos 🏁
+
+🔲 Domina la técnica antes del peso – Un movimiento mal hecho con carga puede provocar lesiones.
+
+🔲 Entrena todo el cuerpo – No te limites a un solo grupo muscular; busca equilibrio entre tren superior, core y tren inferior.
+
+🔲 Activa el core siempre – Mantener el abdomen firme protege la espalda y mejora la estabilidad.
+
+🔲 Varía los ejercicios – Cambiar rutinas evita la adaptación y mantiene el estímulo.
+
+🔲 Usa movimientos naturales – Prioriza ejercicios que imiten acciones de la vida real (agacharse, empujar, girar, cargar).
+
+🔲 Empieza con peso corporal – Antes de usar mancuernas o kettlebells, asegúrate de controlar tu propio peso.
+
+🔲 Incluye trabajo unilateral – Ejercicios con una pierna o un brazo ayudan a corregir desequilibrios musculares.
+
+🔲 Combina fuerza y cardio – Esto mejora la resistencia y el rendimiento general.
+
+🔲 Respira de forma controlada – Exhala en el esfuerzo e inhala en el retorno.
+
+🔲 Escucha a tu cuerpo – Si sientes dolor agudo o mareo, detente y revisa la técnica o intensidad.
